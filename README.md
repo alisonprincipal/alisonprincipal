@@ -7,7 +7,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/alisonjunho/](https://www.linkedin.com/in/alisonjunho/)
 
-- ⚡ Fun fact **Apaixonado por musculação**
+- ⚡ Fun fact **Passionate about bodybuilding**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
